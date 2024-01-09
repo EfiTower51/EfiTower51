@@ -1,5 +1,5 @@
 ## Read me
-Thank you for staying by.
+Thank you for stoping by.
 
 Howdy,EfiTower51 here!
 
